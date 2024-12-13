@@ -6,3 +6,7 @@ link to source folder
 link to AI:
 
 https://chatgpt.com/c/675b7a90-9754-8006-aba5-686bbe5c2a98
+
+link to source
+
+https://chatgpt.com/c/675b7a90-9754-8006-aba5-686bbe5c2a98
