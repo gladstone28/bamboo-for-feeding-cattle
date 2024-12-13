@@ -1,8 +1,10 @@
 
-
 #### bamboo can be a sustainable and economical solution for feeding cows under certain conditions. Here's a detailed breakdown of its potential as cattle fodder:
 
 #### Why Bamboo is Suitable
+
+Copyright:
+&copy: Written by Gladstone Rose, CEO, Quality Solutions Limited
 
 1. Nutritional Content:
 
