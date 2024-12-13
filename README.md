@@ -3,8 +3,7 @@
 
 #### Why Bamboo is Suitable
 
-Copyright:
-&copy: Written by Gladstone Rose, CEO, Quality Solutions Limited
+**Written by Gladstone Rose, CEO, Quality Solutions Limited**
 
 1. Nutritional Content:
 
